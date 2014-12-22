@@ -32,9 +32,14 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A publication of Guiana's plantation Newly undertaken by the Right Honble. the Earle of Barkshire (K
+
 #####Body#####
-A publication of Guiana's plantation Newly undertaken by the Right Honble. the Earle of Barkshire (K
+
+1. A
+PVBLICATION
+OF GVIANA'S
+PLANTATION.
+
 **Types of content**
 
   * There are 8 **verse** lines!
